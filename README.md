@@ -1,4 +1,4 @@
-# [Доска](https://ru.yougile.com/team/ac02a06127a4/%D0%9F%D1%80%D0%B8%D0%BC%D0%B5%D1%80-%D0%BF%D1%80%D0%BE%D0%B5%D0%BA%D1%82%D0%B0/exz)
+# [Доска](https://ru.yougile.com/board/rzdi1sisdf9p)
 
 # Вопросы:
 1. Что вы будете делать? тема - сайт, скорее всего для какого-нибудь магазина
